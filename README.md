@@ -1,0 +1,2 @@
+# -Shox
+Tez va uddaburon
